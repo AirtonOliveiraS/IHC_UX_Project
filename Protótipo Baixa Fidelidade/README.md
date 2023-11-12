@@ -1,1 +1,1 @@
-Protótipos de baixa qualidade criados
+Protótipos de baixa fidelidade criados
